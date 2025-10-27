@@ -21,3 +21,11 @@ I really hope, that the future is some form of tech-oriented utopia and not some
 Honestly, there is absolutely no need for a few billionaires to exist and a multitude of poor people to exist simultaneously.
 If it weren’t for humans and their (our) sense of greed, I know that technology is a very beautiful thing and we can do so much good.
 With this section or category (technology)of my blog, I will be discussing the bright and the dark side of technology.
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+
+**Article Link:** [The Fourth Industrial Revolution](https://medium.com/studentanalyst/police-brutality-cc77836249e8)
+
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) on **26 November 2020**
