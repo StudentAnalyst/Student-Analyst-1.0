@@ -26,6 +26,6 @@ With this section or category (technology)of my blog, I will be discussing the b
 
 **Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
 
-**Article Link:** [The Fourth Industrial Revolution](https://medium.com/studentanalyst/police-brutality-cc77836249e8)
+**Article Link:** [The Fourth Industrial Revolution](https://medium.com/studentanalyst/the-fourth-industrial-revolution-and-a-seemingly-dystopian-future-5e17053ca899)
 
 Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) on **26 November 2020**
