@@ -22,10 +22,13 @@ Honestly, there is absolutely no need for a few billionaires to exist and a mult
 If it weren’t for humans and their (our) sense of greed, I know that technology is a very beautiful thing and we can do so much good.
 With this section or category (technology)of my blog, I will be discussing the bright and the dark side of technology.
 
+---
 # The Original
-
+<br>
 **Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
-
+<br>
 **Article Link:** [The Fourth Industrial Revolution](https://medium.com/studentanalyst/the-fourth-industrial-revolution-and-a-seemingly-dystopian-future-5e17053ca899)
-
-Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) on **26 November 2020**
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**26 November 2020**
