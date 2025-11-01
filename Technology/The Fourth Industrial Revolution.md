@@ -23,8 +23,9 @@ If it weren’t for humans and their (our) sense of greed, I know that technolog
 With this section or category (technology)of my blog, I will be discussing the bright and the dark side of technology.
 
 ---
+
 # The Original
-<br>
+
 **Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
 <br>
 **Article Link:** [The Fourth Industrial Revolution](https://medium.com/studentanalyst/the-fourth-industrial-revolution-and-a-seemingly-dystopian-future-5e17053ca899)
