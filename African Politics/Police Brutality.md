@@ -51,11 +51,14 @@ In South Africa, we had episodes of police brutality during the #FeesMustFall mo
 But, all these references of police brutality shall be reserved for another day, another post, for now, we stand with the Youth of Nigeria in their call to #EndSARS.
 
 > #EndSARS
+> ---
 
 # The Original
 
 **Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
-
+<br>
 **Article Link:** [Police Brutality](https://medium.com/studentanalyst/police-brutality-cc77836249e8)
-
-Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) on **23 November 2020**
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**23 November 2020**
