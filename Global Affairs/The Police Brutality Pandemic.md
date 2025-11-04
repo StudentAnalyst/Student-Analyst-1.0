@@ -44,7 +44,7 @@ Therefore, the current Global & African Affairs are just the proof we need to re
 
 **Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
 <br>
-**Article Link:** [The Police Brutality Pandemic](The Police Brutality Pandemic)
+**Article Link:** [The Police Brutality Pandemic](https://medium.com/studentanalyst/the-police-brutality-pandemic-how-the-us-capitol-invasion-emphasizes-the-fact-that-multicultural-b583540dbc17)
 <br>
 Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
 <br>
