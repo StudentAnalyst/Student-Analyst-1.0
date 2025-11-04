@@ -39,3 +39,13 @@ Similar scenarios occurred in the United States of America, where white ‘allie
 Therefore, the current Global & African Affairs are just the proof we need to recognize that the World Is Anti-Black & Police Brutality is a pandemic that is in desperate need of a vaccine.
 
 ---
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [The Police Brutality Pandemic](The Police Brutality Pandemic)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**11 January 2021**
