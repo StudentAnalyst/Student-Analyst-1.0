@@ -33,3 +33,15 @@ Anyways, which other country has got unique terms such as ‘State Capture’ an
 Anyways South African Politics is exciting, unique and whatever word you have in mind is also applicable. Whatever emotional state you feel when you think of this country is absolutely valid as well, which is why it deserves it’s own category, and I cannot wait to delve deeper into it, unless I receive a cease and desist letter down the line.
 
 I’m so excited.
+
+---
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [The ABCs of South African Politics](https://medium.com/studentanalyst/the-abcs-of-south-african-politics-apartheid-bee-corruption-a-brief-introduction-d6d6e1c39273)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**24 November 2020**
