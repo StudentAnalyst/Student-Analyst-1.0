@@ -47,3 +47,15 @@ Now that we've discussed the benefits of stokvels, be extra careful about being 
 
 ## WhatsApp Stokvels Are A Scam
 Youtube & Instagram : TheProdigalReporter
+
+---
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [How To Start A Stokvel]([https://medium.com/studentanalyst/the-fourth-industrial-revolution-and-a-seemingly-dystopian-future-5e17053ca899](https://medium.com/studentanalyst/whatsapp-stokvels-are-a-scam-amp-don-t-be-tempted-to-join-telegram-or-signal-stokvels-8b503a4dafef))
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**16 January 2021**
