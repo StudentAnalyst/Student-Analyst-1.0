@@ -23,3 +23,15 @@ Stop being apolitical. South Africa is one of the most politically charged natio
 More on South African politics…
 
 Apparently there’s calls for Cyril Ramaphosa to appear on the Zondo Commission after Brian Molefe’s speech. Let’s just wait and see how that goes…
+
+---
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [Vote When There Are Elections](https://medium.com/studentanalyst/so-youre-apolitical-just-get-into-politics-already-vote-when-there-are-elections-caa32aea9ef1?postPublishedType=repub)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**19 January 2021**
