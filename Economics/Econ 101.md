@@ -33,3 +33,15 @@ Anyways, this just highlights the difference in Central Banks, Fiscal & Monetary
 So, this, was a brief post on economics 101, which will guide us through the next posts. Economics is about making choices, to maximize happiness whilst consuming limited resources. 
 
 On a broader perspective, economics can be divided into macro and micro economics, and both sectors can be examined even further in posts to come, I just hope that this Econ 101 post, will make you like economics!
+
+--- 
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [Econ 101](https://medium.com/studentanalyst/econ-101-f02e3be36525)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**21 January 2021**
+
