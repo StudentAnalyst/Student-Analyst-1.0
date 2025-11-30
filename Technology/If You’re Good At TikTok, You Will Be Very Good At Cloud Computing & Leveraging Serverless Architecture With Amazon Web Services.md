@@ -28,3 +28,13 @@ The Future Is Technology, And The Future Is Youth, Therefore The Future Is A You
 Anyways, I really hope whatever field you’re in, you consider AWS at some point.
 
 ---
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [If You’re Good At TikTok, You Will Be Very Good At Cloud Computing & Leveraging Serverless Architecture With Amazon Web Services](https://medium.com/studentanalyst/if-youre-good-at-tiktok-you-will-be-very-good-at-cloud-computing-amp-leveraging-serverless-a040a38a7885)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**22 January 2021**
