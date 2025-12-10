@@ -14,3 +14,15 @@ But, on a more positive note (for the rest of the world, not so positive for Ame
 Do you remember this classic statement by Donald Trump when he referred to certain nations as shitholes, well, we now know, that he was just projecting, and the United States is the ultimate shithole. I need to go scrub my mouth, mind and hands with bleach, because I do hate vulgar terms…
 In terms of African Affairs, well, I just hope that the nations that were impacted by the cyclone are okay.
 
+___
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [The Bernie Sanders Meme](https://medium.com/studentanalyst/president-biden-the-bernie-sanders-meme-something-lighthearted-for-a-change-4841fd0d8b4c)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**26 January 2021**
+
