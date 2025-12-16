@@ -30,3 +30,15 @@ So much happened over the past month alone, that may have made reality seem a li
 
 Covid-19 has definitely catalyzed and accelerated the need for robot content creators and CGI models, to entertain us, because, as a fellow human being, I am, dutifully… exhausted!
 
+---
+
+# The Original
+
+**Blog:** [Student Analyst: Cloud Computing And Emerging Tech](https://medium.com/studentanalyst)
+<br>
+**Article Link:** [Trying to Create a Robot Content Creator](https://medium.com/studentanalyst/trying-to-create-a-robot-content-creator-d6579b7417e)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**07 February 2021**
+
